@@ -1,0 +1,2 @@
+# Increasing-Shelf-Life-of-Perishable-Goods-in-Nigeria-through-Value-Addition
+Increasing the shelf life of perishable goods in Nigeria through value addition is all about finding innovative and effective ways to preserve and enhance good quality of goods produced by farmers. through proper way of pacakging and processing of foods into other new products, farmers can extend the freshness and longevity of perishable products.
